@@ -1,1 +1,1 @@
-Contact information here
+Contact my email at areebmohsin04@gmail.com, or my number at 905-580-****
